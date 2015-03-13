@@ -1,0 +1,3 @@
+This is SEEDS official mission statement that I received from Fred Abbott. Feel free to use this verbatim when asked for a quote or goals of our organization:
+
+"The SEEDS mission is to diversify and advance the ecology profession through opportunities that stimulate and nurture the interest of underrepresented students to participate in ecology and to lead within their communities. Focused mainly at the undergraduate level, with extension services for communities, high schools, graduate students, and international collaborations, the SEEDS program promotes an ecology profession with wide representation to ensure environmental understanding and a sustainable future for all."
